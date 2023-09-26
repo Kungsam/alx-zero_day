@@ -1,1 +1,1 @@
-sofware is life
+safer
